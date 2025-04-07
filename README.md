@@ -8,7 +8,7 @@ create my own designs, and even make my own clothes from time to time!
    Meanwhile, I'm a nerd too. ☝️🤓 Love playing all night with friends, watch some anime, 
 and dive into RPGs. Last but not least: huge Pokémon fan. HUGE! 😤 (Garchomp supremacy 💪). 
 
-   In short, I'm obsessed with art and technology!
+   In short, I'm obsessed with art and technology! 🧡💛💚💙💜
    
    Well, you might be thinking: 'Why is this girl telling me all this random stuff?' 🙉 
 I know it sounds super random — even to me, to be honest — but someday in my adult life, 
