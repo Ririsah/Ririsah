@@ -1,4 +1,4 @@
-Hi! 👋👋👋
+<h1>Hi! 👋👋👋</h1>
 
    I'm Clara, 26 years old, and a Front-end developer! (cat lover btw 🐈)
 
